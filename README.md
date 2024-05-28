@@ -1,0 +1,1 @@
+# Siemens-NX-activation-by-feet
